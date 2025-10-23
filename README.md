@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pratham N M
 - 👀 I’m interested in datascience
-- 🌱 I’m currently learning First year engineering and i will learn all programs
+- 🌱 I’m currently learning second year engineering and i will learn all programs
 - 💞️ I’m looking to collaborate on any company for intership
 - 📫 How to reach me by instgram and linkedin 
 - 😄 Pronouns: ...
